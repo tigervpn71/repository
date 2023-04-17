@@ -10,11 +10,11 @@
 - - - -
 #### 各平台安装包下载（请在浏览器中打开）
 
-**:arrow_double_down: [iOS 版本链接](https://www.xxxvpn.com/xgvpn.html?t=t3gu23za)**
+**:arrow_double_down: [iOS 版本链接](https://share.234vpn.vip/xgvpn.html?t=t3gu23za)**
 
-**:arrow_double_down: [Android 版本.apk](https://www.xxxvpn.com/xgvpn.html?t=u5q6ok55)**
+**:arrow_double_down: [Android 版本.apk](https://share.234vpn.vip/xgvpn.html?t=u5q6ok55)**
 
-**:globe_with_meridians: [访问官方网站](https://www.xxxvpn.com/xgvpn.html?t=8u5v7led)** 
+**:globe_with_meridians: [访问官方网站](https://share.234vpn.vip/xgvpn.html?t=8u5v7led)** 
 
 ###
 ---

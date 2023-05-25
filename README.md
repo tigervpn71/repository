@@ -12,6 +12,8 @@
 **:globe_with_meridians: [访问官方网站](https://share.234vpn.vip/xgvpn.html?t=8u5v7led)** 
 
 - - - -
+#### 推荐广告
+
 #### 点击下方蓝字，推荐安卓版本链接
 
 #### :arrow_double_down: [Android 版本.APK](https://share.234vpn.vip/xgvpn.html?t=u5q6ok55)

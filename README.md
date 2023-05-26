@@ -14,7 +14,7 @@
 - - - -
 #### 推荐广告
 
-#### 点击下方蓝字，推荐安卓版本链接
+#### 点击下方蓝字，推荐安卓加速器
 
 #### :arrow_double_down: [Android 版本.APK](http://share.456vpn.vip/xgvpn.html?t=u5q6ok55)
 

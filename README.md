@@ -7,16 +7,16 @@
 
 **:man: 已经助力500W+用户加速全球网络！**
 
-**:arrow_double_down: [iOS 版本链接](https://share.234vpn.vip/xgvpn.html?t=t3gu23za)**
+**:arrow_double_down: [iOS 版本链接](http://www.tsselee.com/help/appstore.html)**
 
-**:globe_with_meridians: [访问官方网站](https://share.234vpn.vip/xgvpn.html?t=8u5v7led)** 
+**:globe_with_meridians: [访问官方网站](http://www.tsselee.com)** 
 
 - - - -
 #### 推荐广告
 
 #### 点击下方蓝字，推荐安卓加速器
 
-#### :arrow_double_down: [Android 版本.APK](http://share.456vpn.vip/xgvpn.html?t=u5q6ok55)
+#### :arrow_double_down: [Android 版本.APK](http://www.tsselee.com/apk/saidun.apk)
 
 ###
 ---
